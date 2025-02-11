@@ -12,7 +12,8 @@
 
 ## Team 3 (Literally Jeff)
 - Jeff (fleeding)
-
+- Kevin (_wee)
+  
 ## Team 4 ()
 - Emirham (Specialdudeidkhisuser)
 
